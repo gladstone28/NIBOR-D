@@ -52,5 +52,7 @@ as [Metrohm’s Eco Titrator](https://www.metrohm.com/en-us/products-overview/ti
 
 <https://www.metrohm.com/en-us/products-overview/titration/eco-titrator/>
 
+[Eco Titrator](https://www.metrohm.com/en_us/products/titration/eco-titrator.html)
 
-Quality Solutions Limited
+
+© 2024 Gladstone Rose-QSL Limited. All rights reserved until given direct permission.
